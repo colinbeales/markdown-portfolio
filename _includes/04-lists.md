@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Family
+2. Freinds
+3. Football
+   1. Brighton
+   2. Union St. G
